@@ -1,4 +1,4 @@
 MyAttractions
 =============
 
-just a personal viewpoint guide
+just a personal attractions guide
